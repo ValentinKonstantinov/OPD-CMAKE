@@ -1,0 +1,1 @@
+https://ps-group.github.io/ps1/ ссылка на задания
